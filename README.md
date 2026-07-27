@@ -1,2 +1,13 @@
-# Alfajimy_music.-bot
-ALFAJIMY 🎧 Underground Trap | Hip-Hop Real story • Deep lyrics • 808 vibes New era of Uzbek rap 🔥
+# ALFAJIMY 🎤
+
+Underground Trap & Hip-Hop Artist.
+
+## Music
+🎧 Latest tracks:
+- New releases coming soon
+
+## About
+ALFAJIMY — Uzbek Underground music project.
+Trap, Hip-Hop and 808 vibes.
+
+© 2026 ALFAJIMY
